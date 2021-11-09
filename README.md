@@ -1,4 +1,4 @@
-![] (dinoOffline.gif)
+![](dinoOffline.gif)
 
 ### Hi there 👋
 
