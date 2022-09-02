@@ -1,4 +1,4 @@
-![](mctominay.gif)
+![](rash.gif)
 ### ⚡⚡😄 GOOOAAAAAALLLLLL!!! GOAAL!GOAALL!GOOOAAALLL!!! 😄⚡⚡ ###
 
 # Hi I'm Dipta 👋 #
