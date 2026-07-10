@@ -1,4 +1,4 @@
-![](rash.gif)
+![](cunha.gif)
 ### ⚡⚡😄 GOOOAAAAAALLLLLL!!! GOAAL!GOAALL!GOOOAAALLL!!! 😄⚡⚡ ###
 
 # Hi I'm Dipta 👋 #
